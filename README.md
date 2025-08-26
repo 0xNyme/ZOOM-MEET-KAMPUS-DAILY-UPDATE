@@ -1,7 +1,7 @@
 # ZOOM-MEET-KAMPUS-DAILY-UPDATE
 
 <details>
-  <summary>KALKULUS 26 Agustus 2025</summary>
+  <summary>KALKULUS 26 Agustus 2025 MALAM</summary>
   
   Halo, teman-teman praktikan! 👋
 
@@ -18,7 +18,7 @@
 </details>
 
 <details>
-  <summary>STATISTIKA B 27 Agustus 2025</summary>
+  <summary>STATISTIKA B 27 Agustus 2025 PAGI</summary>
   
   📊 **[ANNOUNCEMENT]** 📊
 
