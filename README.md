@@ -10,6 +10,7 @@
   🗓 **Tanggal**: Selasa, 26 Agustus 2025  
   🕣 **Waktu**: 19.30 WIB  
   📍 **Tempat**: Google Meet  
+  🔗 **Link** : check grup
 
   Untuk seluruh praktikan **DIWAJIBKAN HADIR** secara tepat waktu ya.
 
