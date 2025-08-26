@@ -30,7 +30,7 @@
   Pada Pertemuan 1 ini kelas A dan B akan digabung, pertemuan dilaksanakan pada:  
   🗓️ **Tanggal**: Rabu, 27 Agustus 2025  
   ⏰ **Waktu**: 09.15 - 10.55  
-  🔗 **Link**: Menyusul  
+  🔗 **Link**: Check grup
 
   See you soon! 🤩
 </details>
