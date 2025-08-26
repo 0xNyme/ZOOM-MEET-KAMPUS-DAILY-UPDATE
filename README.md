@@ -1,24 +1,6 @@
 # ZOOM-MEET-KAMPUS-DAILY-UPDATE
 
 <details>
-  <summary>KALKULUS 26 Agustus 2025 MALAM</summary>
-  
-  Halo, teman-teman praktikan! 👋
-
-  Kita akan melaksanakan Pertemuan Pertama Mata Kuliah Kalkulus Semester Ganjil 2025.
-
-  🗓 **Tanggal**: Selasa, 26 Agustus 2025  
-  🕣 **Waktu**: 19.30 WIB  
-  📍 **Tempat**: Google Meet  
-  🔗 **Link** : check grup
-
-  Untuk seluruh praktikan **DIWAJIBKAN HADIR** secara tepat waktu ya.
-
-  Terima kasih 🙌🤩  
-  *Wassalamu'alaikum Warahmatullahi Wabarokatuh*
-</details>
-
-<details>
   <summary>STATISTIKA B 27 Agustus 2025 PAGI</summary>
   
   📊 **[ANNOUNCEMENT]** 📊
